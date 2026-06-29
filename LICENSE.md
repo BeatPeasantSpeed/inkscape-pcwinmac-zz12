@@ -1,4 +1,4 @@
-# 
+# Turbo Inkscape filters for Mac OS | Secure Inkscape filters for PC Windows. Featuring wet-mixing and color-swatches — optimized for maximum performance on every platform.
 
 
 
